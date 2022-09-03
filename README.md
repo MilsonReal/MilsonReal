@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on (doesn't matter)
 - 📫 How to reach me ...
 - don't use difficult words, i know english but there are a LOT of words i don't know. (I will probably use google translate in most cases like now).
+- introverted, I don't even know how to start a conversation, or even continue it.
 
 <!---
 MilsonReal/MilsonReal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
